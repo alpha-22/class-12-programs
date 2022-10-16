@@ -6,15 +6,16 @@ Discord:"Parth #3635"
 +++
 ---
 
-Not so Pro , will not bore you by 1-2 page matter.
+Not so Pro , will not bore you by 1-2 page matter.<br>
 ![pro bro](pro.jpg).
-(So I will write in points.)
--Zero Gravity Zone(itna kaafi nahi hai kya?).
+(So I will write in points.)<br><br>
+-Zero Gravity Zone(itna kaafi nahi hai kya?).<br>
 ![](0.jpg).
--Food supplied to a person using drones or Transformers(haan haan chote rahenge transformes).
+-Food supplied to a person using drones or Transformers(haan haan chote rahenge transformes).<br>
 ![](transformer.jpg).
--Old and classic pin ball machines attached to side walls with *leader board*.
--Full ON Audio system but the Sound would not leave the walls of cafe.
--Floor will be screens .
--Yes if have the power to improve taste Will do that too under __Ram bhaiya guidance🙏__.
-Enough for the day *day dreamers* , (jiit mai sapne dekhne mai bhi fine cut hota hai)
+-Old and classic pin ball machines attached to side walls with *leader board*.<br>
+-Full ON Audio system but the Sound would not leave the walls of cafe.<br>
+-Floor will be screens .<br>
+-Yes if have the power to improve taste Will do that too under __Ram bhaiya guidance🙏__.<br>
+Enough for the day *day dreamers* , (jiit mai sapne dekhne mai bhi fine cut hota hai)<br>
+<br>

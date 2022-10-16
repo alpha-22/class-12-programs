@@ -18,6 +18,8 @@ Not so Pro , will not bore you by 1-2 page matter.<br>
 ![](transformer.jpg).
 <br><br>
 -Old and classic pin ball machines attached to side walls with *leader board*.<br>
+![pin](https://user-images.githubusercontent.com/57025122/196029429-dfdddb5e-7ef4-4266-a7b3-d314b34ff707.jpg)
+<br><br>
 -Full ON Audio system but the Sound would not leave the walls of cafe.<br>
 -Floor will be screens .<br>
 -Yes if have the power to improve taste Will do that too under __Ram bhaiya guidance🙏__.<br>

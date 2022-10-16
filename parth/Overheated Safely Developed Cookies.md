@@ -7,10 +7,9 @@ Discord:"Parth #3635"<br>
 +++<br>
 ---
 
-Aish karne ke liye bhi cash chahiye
+Aish karne ke liye bhi cash chahiye. <br>
 ![download](https://user-images.githubusercontent.com/57025122/196029778-cf7503e8-de77-4048-9214-bcf02b7f9944.jpg)
 <br><br>
-(So I will write in points.)<br><br>
 -Zero Gravity Zone(itna kaafi nahi hai kya?).<br>
 ![0](https://user-images.githubusercontent.com/57025122/196029586-8850c3d5-b68c-4ae3-a78f-a46c4b0973ae.jpg)
 <br><br>

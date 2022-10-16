@@ -7,15 +7,15 @@ Discord:"Parth #3635"<br>
 +++<br>
 ---
 
-Not so Pro , will not bore you by 1-2 page matter.<br>
-![pro bro](pro.jpg).
+Aish karne ke liye bhi cash chahiye
+![download](https://user-images.githubusercontent.com/57025122/196029778-cf7503e8-de77-4048-9214-bcf02b7f9944.jpg)
 <br><br>
 (So I will write in points.)<br><br>
 -Zero Gravity Zone(itna kaafi nahi hai kya?).<br>
-![](0.jpg).
+![0](https://user-images.githubusercontent.com/57025122/196029586-8850c3d5-b68c-4ae3-a78f-a46c4b0973ae.jpg)
 <br><br>
 -Food supplied to a person using drones or Transformers(haan haan chote rahenge transformes).<br>
-![](transformer.jpg).
+![transformer](https://user-images.githubusercontent.com/57025122/196029566-944bf664-8a2f-490f-8b85-4fd852389c4a.jpg)
 <br><br>
 -Old and classic pin ball machines attached to side walls with *leader board*.<br>
 ![pin](https://user-images.githubusercontent.com/57025122/196029429-dfdddb5e-7ef4-4266-a7b3-d314b34ff707.jpg)

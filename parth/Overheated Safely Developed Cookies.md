@@ -7,7 +7,7 @@ Discord:"Parth #3635"<br>
 +++<br>
 ---
 
-Aish karne ke liye bhi cash chahiye. <br>
+-Aish karne ke liye bhi cash chahiye. <br>
 ![download](https://user-images.githubusercontent.com/57025122/196029778-cf7503e8-de77-4048-9214-bcf02b7f9944.jpg)
 <br><br>
 -Zero Gravity Zone(itna kaafi nahi hai kya?).<br>
@@ -20,7 +20,7 @@ Aish karne ke liye bhi cash chahiye. <br>
 ![pin](https://user-images.githubusercontent.com/57025122/196029429-dfdddb5e-7ef4-4266-a7b3-d314b34ff707.jpg)
 <br><br>
 -Full ON Audio system but the Sound would not leave the walls of cafe.<br>
--Floor will be screens .<br>
+-Floor will be screens(3d floors) .<br>
 -Yes if have the power to improve taste Will do that too under __Ram bhaiya guidance🙏__.<br>
 Enough for the day *day dreamers* , (jiit mai sapne dekhne mai bhi fine cut hota hai)<br>
 <br>
